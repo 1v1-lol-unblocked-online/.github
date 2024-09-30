@@ -52,6 +52,8 @@ To truly excel at 1v1.lol unblocked, consider these tips:
 - Stay Aware of Your Surroundings: Always keep an eye on your surroundings. Knowing where your opponent is and anticipating their moves can make all the difference in a match.
 - Learn from Your Matches: Take note of what works and what doesn’t after each game. Adapting your strategy based on your experiences is key to improvement.
 
+You can still check [https://github.com/1v1-lol-unblocked-games-76](https://github.com/1v1-lol-unblocked-games-76).
+
 ## Conclusion
 
 In conclusion, 1v1.lol unblocked offers an exciting and competitive gaming experience that can be enjoyed by players of all ages. Its accessibility, skill-building potential, and vibrant community make it a standout choice for anyone looking to engage in online battles. If you haven’t yet experienced the thrill of 1v1.lol unblocked, now is the perfect time to start.
